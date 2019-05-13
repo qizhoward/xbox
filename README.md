@@ -11,6 +11,9 @@ on the world biggest green programm </br>
 
 
 汇总C C++ C# ObjectC JAVA 等编程语言之最绿 </br>
+调集世界最大数据库,聚集世界各地数据中心,凝聚各国首脑数据,最稳数据,最快数据,
+集中一点之绿　　</br>
+
 
 汇总最绿安全编程语言 </br>
 汇总安全编程语言 </br>
@@ -18,7 +21,7 @@ on the world biggest green programm </br>
 三极管叠加的绿</br>
 
 叠加的绿</br>
-
+保持之绿</br>
 
 世界最大绿帽组,      </br>
 世界最厚绿帽组,      </br>
